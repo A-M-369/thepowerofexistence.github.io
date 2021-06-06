@@ -1,1 +1,0 @@
-# thepowerofexistence.github.io
